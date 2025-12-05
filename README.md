@@ -6,5 +6,6 @@ https://www.youtube.com/watch?v=hHzHcLxoXqE&t=8s
 
 🤝 **Support & Buy!**
 [Discord Server](https://discord.gg/W9EJAZvPzn)
+
 💻 **Developer**
 [Majestic Developments](https://discord.gg/W9EJAZvPzn)
